@@ -12,7 +12,7 @@ there is no way a bee should be able to fly.
 
 Its wings are too small to get its fat little body off the ground.
 
-The bee, of course, flies anyway
+The bee, of course, flies anywaye
 
 because bees don't care what humans think is impossible.
 
